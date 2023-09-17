@@ -6,7 +6,12 @@
 
 - 📫 How to reach me **ranharush91@gmail.com**
 
-- ⚡ Fun fact **I think I am a good listener**
+- ⚡ Fun fact **I know for a fact that I am an excellent listener, and I believe that my attentive and empathetic nature allows me to connect more deeply with others°°:
+
+Prompts created by Grammarly
+- "Improve it"
+- "Sound confident"
+- "Make it persuasive"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
